@@ -1,3 +1,3 @@
 # Resume
-Riley Personne
-drew.w.walton@wsu.edu
+Valerie Walton
+Valerie.Walton@evergreen.edu
